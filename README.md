@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on automatizations worsheets or BI processes.
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: by hear.
+- 📫 How to reach me: by here.
 - 😄 Pronouns: no matter this is irrelavant.
 - ⚡ Fun fact: I like anime, games, 3d design and programming.
 -->
